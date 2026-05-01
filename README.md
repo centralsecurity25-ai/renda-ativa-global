@@ -1,0 +1,1 @@
+# renda-ativa-global
